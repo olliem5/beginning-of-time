@@ -1,0 +1,1 @@
+![](https://media.newyorker.com/photos/5ba177da9eb2f7420aadeb98/master/pass/Cohen-Linus-Torvalds.jpg)
